@@ -1,4 +1,4 @@
-# 
+# Open Source Foxit PDF Editor presets for Mac OS | Instant Foxit PDF Editor presets for PC Windows. Featuring invoicing and budgeting tools — optimized for maximum performance on every platform.
 
 
 
